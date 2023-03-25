@@ -1,2 +1,2 @@
 # project
-Yo mama
+Yo mama.
